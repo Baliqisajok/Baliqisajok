@@ -1,0 +1,6 @@
+- 👋 Hi, I’m Adebanjo Bilikis Ajoke
+- 👀 I’m a Data Analyst
+- 🌱 I’m currently learning 
+- 💞️ I’m looking to collaborate with people that has more experience in data Analyst and Data Scientist
+- 📫 You can reach me through my Email ID 'Baliqisajok@gmail.com'
+- ⚡ I love meeting and collaborating with people
